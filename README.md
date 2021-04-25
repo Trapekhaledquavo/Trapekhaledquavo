@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Trapekhaledquavo
+- 👋 Hi, I’m @Trape Maverick
 - 👀 I’m interested in music, games, movies, anime and coding.
 - 🌱 I’m currently learning Computer Engineering in Kwame Nkrumah University of Science And Technology 
 - 💞️ I’m looking to collaborate with coders to create simple but effective apps. 
